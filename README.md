@@ -2,7 +2,7 @@
 - 👀 I’m interested in Web development and Networks
 - 🌱 I’m currently learning Bachelor of Information Technology
 - 💞️ I’m looking to collaborate on Web development front end
-- 📫 Can text on WhatsApp +27 78 858 3349 for quick response
+- 📫 Can text on WhatsApp +27 63 919 5354 for quick response
 
 
 <!---
